@@ -1,3 +1,3 @@
-# test0
-start
-yess
+KUY ZA 
+
+ไอชาติหมา
